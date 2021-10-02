@@ -1,1 +1,1 @@
-website for ecom
+This website for collecting reviews on online store
