@@ -1,1 +1,1 @@
-This website for collecting reviews on online store
+This website for collecting reviews on online store for basti city
